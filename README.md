@@ -1,5 +1,5 @@
 # Hi I'm Abyssinium 👋
-📍Alaska, United States
+📍Illinois, United States
 
 ✍️ (https://github.com/Abyssinium)
 
